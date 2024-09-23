@@ -1,1 +1,1 @@
-_Le meilleur jeu de tous les temps_
+Le meilleur jeu de tous les temps
